@@ -10,8 +10,19 @@ Podil semtinde çok klüp yok ama barlar var ve hoş bir semtmiş. Görülebilir
 
 30 Haziran - 3 Temmuz Lviv
 3 Temmuz - 5 Temmuz Kiev
-6 Temmuz - 9 Temmuz Odessa
-9 Temmuz - 12 Temmuz Prag
-13 Temmuz - 16 Temmuz Budapeşte
+6 Temmuz - 10 Temmuz Odessa
+10 Temmuz - 12 Temmuz Budapeşte
+13 Temmuz - 16 Temmuz Prag
 17 Temmuz - 19 Temmuz Dubrovnik
 20 Temmuz - 23 Temmuz Venedik
+
+
+Masraflar: 
+Prag - Budapeşte Tren yaklaşık 200 TL
+Odesa Prag uçak yaklaşık 500 TL
+Şengen vize masraf yaklaşık 529 TL
+Lviv Uçak bileti yaklaşık 400 TL
+Lviv Kiev tren 120 TL
+Kiev Odesa uçak 300 TL
+Venedik İstanbul 664 TL
+

@@ -11,10 +11,10 @@ Podil semtinde çok klüp yok ama barlar var ve hoş bir semtmiş. Görülebilir
 30 Haziran - 3 Temmuz Lviv
 3 Temmuz - 5 Temmuz Kiev
 6 Temmuz - 10 Temmuz Odessa
-10 Temmuz - 12 Temmuz Budapeşte
-13 Temmuz - 16 Temmuz Prag
-17 Temmuz - 19 Temmuz Dubrovnik
-20 Temmuz - 23 Temmuz Venedik
+10 Temmuz - 12 Temmuz Venedik
+13 Temmuz - 16 Temmuz Budapeşte
+17 Temmuz - 19 Temmuz Prag
+
 
 
 Masraflar: 
